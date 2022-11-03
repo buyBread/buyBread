@@ -1,4 +1,4 @@
 #### relevant information
 * self-taught, still learning.
 * write and drop stuff on impulse.
-* know a lot more than needed.
+* don't push like 99% of my stuff.
